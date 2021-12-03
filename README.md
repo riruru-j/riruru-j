@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @riruru-j [Riruru]
+- 👀 I’m interested in singing, dancing and coding programs.
+- 🌱 I’m currently learning HTML.
+- 💞️ I’m looking to collaborate on [haven't decided].
+- 📫 To reach me, use the email bennikathe3@gmail.com [for business enquiries].
